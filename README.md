@@ -1,0 +1,2 @@
+# seperti-kemarin
+For mantan
